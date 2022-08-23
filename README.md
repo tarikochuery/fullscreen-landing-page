@@ -1,1 +1,0 @@
-https://traversymedia.com/downloads/assets/beachshowcase.jpg
